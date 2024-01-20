@@ -1,0 +1,1 @@
+Film o těžkosti hledaní pravdy uvnitř manželství. Nakonec s tím pomůže pes. Dobře napsané i zahrané postavy. Zajímavá kamera navozující intimitu. Na můj vkus zbytečně dlouhá stopáž.
