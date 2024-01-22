@@ -1,8 +1,6 @@
 ---
 title: Anatomie pádu
-tags:
- - movie
- - review
+tags: film
 ---
 
-Film o pídění po pravdě. Jako když prase ryje ve špíně a hledá lanýže, tady soudní proces rozkrývá problémy jednoho manželství. Nakonec s tím pomůže pes. Dobře napsané i zahrané postavy. Zajímavá kamera navozující intimitu. Na můj vkus zbytečně dlouhá stopáž.
+Jako když prase ryje ve špinavé zemí a hledá lanýže, tady film v soudní síni hledá pravdu a ryje v problémech manželů. Nakonec pravdu pomůže odhalit pes, a ne prase. Dobře napsané i zahrané postavy. Zajímavá kamera navozující intimitu. Stopáž by mohla být o něco kratší. Palec nahoru
