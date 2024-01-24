@@ -1,5 +1,7 @@
 ---
-title: Àlááfíà - Honour
+artist: Àlááfíà
+title: Honour
+date: 2023-11-03
 ---
 
 https://honour2.bandcamp.com/track/dubbleupptown-la-rocque
