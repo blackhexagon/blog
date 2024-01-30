@@ -1,3 +1,9 @@
+---
+title: Koncert Slowdive 2024 Archa Praha
+date: 2024-01-28
+tags: [music]
+---
+
 Lístky jsem kupoval hned po zveřejnění, a udělal jsem dobře, protože se koncert vyprodal. Měl jsem velkou radost, protože tehdy na Field Day se zrovna kryli s Aphexem a já dal přednost jemu, což zpětně vidím jako chybu.
 
 Záměrně jsem nekoukal na setlisty z minulých koncertů a nechal jsem se překvapit. Z nejnoveší desky zahráli jen pár věcí a osobně mi největší štěstí přinesli se skladbami Crazy For You a Sugar for Pill. 
